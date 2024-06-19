@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @beatnikbabyy
 - 👀 I’m interested in ... everything
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ... ASL, Levantine history, computer science, braille
 - 💞️ I’m looking to collaborate on ... 
-- 📫 How to reach me ... @beatnikbabyy on instagram & twit, beatnikbaby@outlook if ur being serious
+- 📫 How to reach me ...
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... Free Palestine
 
