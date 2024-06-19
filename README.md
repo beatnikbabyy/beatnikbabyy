@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @beatnikbabyy
 - 👀 I’m interested in ... everything
-- 🌱 I’m currently learning ... ASL, computer science, braille, behavioral biology, levantine history
+- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... @beatnikbabyy on instagram & twit, beatnikbaby@outlook if ur being serious
 - 😄 Pronouns: ... she/her
